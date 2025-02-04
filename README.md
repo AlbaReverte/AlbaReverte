@@ -5,7 +5,7 @@ Standing out for my versatility and versatility in various work areas. My
 Quick learning ability and my demanding nature allow me
 adapt efficiently to new challenges and maintain high standards of
 quality in the tasks I perform.</p>
-[CURRÍCULUM DEFINITIVO ALBA REVERTE.pdf](https://github.com/user-attachments/files/18662032/CURRICULUM.DEFINITIVO.ALBA.REVERTE.pdf)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
