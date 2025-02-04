@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/90aa9c4d-ce56-4bfd-9a34-a88ddcf3a09a)
+
+
 <h1 align="center">Hi 👋, I'm Alba Reverte</h1>
 <h3 align="center">A passionate full stack developer from Spain</h3>
 <p>I am a professional with extensive experience in team coordination,
